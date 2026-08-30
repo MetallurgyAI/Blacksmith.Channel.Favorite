@@ -1,1 +1,7 @@
+# Home:
 https://m.youtube.com/@df-intheshop330
+
+note: This guy does a great job teaching Theory, followed by detailed Demonstration!
+
+# Favorite:
+- [Blacksmithing for Beginners - Forging and Heat Treating Carbon Steel - 1](
