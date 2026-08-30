@@ -1,3 +1,3 @@
 - [Blacksmithing for Beginners - Understanding Cold Chisels](https://youtu.be/e7umWmyjkGI)
 - [Blacksmithing For Beginners - Tempering Batches of Chisels in the Forge](https://youtu.be/Ek7M9XwhzTI)
-- [Blacksmithing for Beginners - My Favorite Cold Chisel](
+- [Blacksmithing for Beginners - My Favorite Cold Chisel](https://youtu.be/QdHWZ38_rDc)
