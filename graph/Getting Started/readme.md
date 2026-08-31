@@ -1,2 +1,2 @@
 - [Blacksmithing on a Budget | Cheapest Way to Get Started](https://youtu.be/C7Asuijn61Y)
-- [How To Start Blacksmithing for $100](
+- [How To Start Blacksmithing for $100](https://youtu.be/u_f3hQqNM6Q)
