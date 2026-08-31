@@ -5,4 +5,4 @@ https://m.youtube.com/@BlackBearForgeII
 - [Railroad Spikes for Blacksmithing - Clearing some of the confusion](https://youtu.be/n48dB7tKtEM)
 
 # Index.
-- [Fundamentals of Blacksmithing - Bending](
+- [Fundamentals of Blacksmithing - Bending](https://youtu.be/Rudy5ZNGp1A)
