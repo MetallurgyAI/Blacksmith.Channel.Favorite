@@ -1,3 +1,4 @@
 https://m.youtube.com/@BlackBearForge
 
-- [What tools do you need to start blacksmithing](
+- [What tools do you need to start blacksmithing](https://youtu.be/03uu9YOqNyM)
+- [
